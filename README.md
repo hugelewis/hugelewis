@@ -1,7 +1,7 @@
 HELLO
 - I'm just some guy
 - any pronouns are good 4 me
-- disabled so i don't get out a lot
+- disabled so I don't get out a lot
 - I write and do art but nearly not enough.. maybe soon?
 - obsessed w anything megaten
 - I'm a silly goofster. I'm actually v friendly, dw bout my tone I'm just autistic

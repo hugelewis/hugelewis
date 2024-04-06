@@ -1,11 +1,12 @@
 HELLO
-- i'm just some guy
+- I'm just some guy
 - any pronouns are good 4 me
 - disabled so i don't get out a lot
-- i write but don't do it enough, im pretty bad at art but im learning
+- I write and do art but nearly not enough.. maybe soon?
 - obsessed w anything megaten
-- im a silly goofster. im actually v friendly, dw bout my tone im just autistic
-- come hmu on tumblr dot com (its the only social i still actually use)
+- I'm a silly goofster. I'm actually v friendly, dw bout my tone I'm just autistic
+- come hmu on high-metafive.tumblr.com (it's the only social I still actually use)
+- my partner and I are a cool dynamic duo- he's good at programming and logistics, I'm an artsy weirdo who loves to write. together we may make some cool stuff? we will see!
 <!---
 hugelewis/hugelewis is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
